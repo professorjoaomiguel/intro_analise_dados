@@ -3,6 +3,6 @@
 
 Unidade Curricular da Faculdade SENAI Porto Alegre
 
-Professor João Miguel - t.me/professorjoaomiguel
+Professor João Miguel - http://t.me/professorjoaomiguel
 
 Primeira oferta em 2023-1
